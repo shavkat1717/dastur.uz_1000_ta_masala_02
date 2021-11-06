@@ -1,1 +1,1 @@
-# dastur.uz_1000_ta_masala_02
+# dastur.uz [02 Butun sonlarga oid masalalar]
